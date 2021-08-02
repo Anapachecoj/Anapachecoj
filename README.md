@@ -7,7 +7,7 @@
 - 📍  São Paulo - SP
 - 💻 Dev Fullstack
 - 📚 Aluna da Generation Brasil
-- 🎶 Gosto de cantar as vezes 
+- 🎶 Gosto de cantar nas horas vagas
   
 <br>
   
